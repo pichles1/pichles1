@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Simon
 - 👀 I’m interested in Formula 1 and Video Games
-- 🌱 I’m currently learning how to usefull
+- 🌱 I’m currently learning how to be usefull
 - ⚡ Fun fact: (╯°□°）╯︵ ┻━┻
 
 <!---
